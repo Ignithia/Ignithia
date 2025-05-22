@@ -19,5 +19,5 @@ When I’m not coding, you’ll find me reading, boxing or gaming.
 ## Let’s Connect
 Want to reach out to me? Here you go have some links/socials!
 
-[Portfolio Website](https://www.ryanvdv-portfolio.be/) is still in need for a refreshment.  
+[Portfolio Website](https://www.ryanvdv-portfolio.be/)  
   [LinkedIn](https://www.linkedin.com/in/ryan-van-de-vreken-983751222/)
